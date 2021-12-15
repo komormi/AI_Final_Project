@@ -8,4 +8,4 @@ Video Link:
 
 Hosted on OneDrive. Access is restricted to people with sheridan based office 365 accounts. 
 
-https://sheridanc-my.sharepoint.com/:v:/g/personal/komormi_shernet_sheridancollege_ca/EZdxuJ_az-FJmYMz6ybTGv8BkNnPdhgmqe0fhzHb-Ohi_Q?e=ltvAYE
+# https://sheridanc-my.sharepoint.com/:v:/g/personal/komormi_shernet_sheridancollege_ca/EZdxuJ_az-FJmYMz6ybTGv8BkNnPdhgmqe0fhzHb-Ohi_Q?e=ltvAYE
